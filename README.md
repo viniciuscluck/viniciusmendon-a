@@ -1,1 +1,0 @@
-# viniciusmendon-a
